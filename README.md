@@ -1,4 +1,4 @@
-welcone to my 8347340347203 github account.
+welcome to my 8347340347203 github account.
 
 
 
